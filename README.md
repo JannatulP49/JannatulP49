@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **prityjannatul49@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1tuaIMJhU-W09cgFKdyS2YnEJuGFxsc2B/edit?usp=sharing&ouid=112560238421318511085&rtpof=true&sd=true](https://docs.google.com/document/d/1tuaIMJhU-W09cgFKdyS2YnEJuGFxsc2B/edit?usp=sharing&ouid=112560238421318511085&rtpof=true&sd=true)
+- 📄 Know about my experiences [[https://docs.google.com/document/d/1tuaIMJhU-W09cgFKdyS2YnEJuGFxsc2B/edit?usp=sharing&ouid=112560238421318511085&rtpof=true&sd=true](https://docs.google.com/document/d/1121NJvIdAEdNHYhPuU8ZfyE2HqD85Vj9ikN5iBypvsw/edit?usp=sharing)]
 
 - ⚡ Fun fact **I wasn't born in America!?**
 
